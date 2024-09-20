@@ -1,0 +1,3 @@
+1. business principles (honesty/integrity/transparency, compassion/respect, responsibility/accountability, loyalty/trustworthiness, law-abiding, fairness, leadership)
+2. business policies (e.g. anti-discrimination, workplace health/safety/security, employee code of conduct & anti-harassment, attendance & vacation & time-off, employee complaint, work schedule & rest period, substance abuse, mobile device management, compensation and benefits, travel, inclement weather, remote work, conflict of interest, and acceptable use)
+3. working conditions (compensation, safety, relationships, skill discretion, prospects)
